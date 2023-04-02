@@ -8,6 +8,9 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 * ⌛ᴀɢᴇ : 15 𝚈
 * 🎓ɢᴇɴᴅᴇʀ : 𝙼𝚊𝚕𝚎
 
+📋 ɪɴꜰᴏ 🧾
+--------------
+
 * 🌍  I'm based in ɴᴀᴋʜᴏɴ ꜱɪ ᴛʜᴀᴍᴍᴀʀᴀᴛ
 * ✉️  You can contact me at [KisuX3 Gmail](mailto:Pukan221bill@gmail.com)
 * 🧠  I'm learning secondary high school 4
